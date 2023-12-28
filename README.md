@@ -6,8 +6,8 @@ this group we have:
 
 Chikh Mohamed Amine, ID 2323 32138808.
 
-Sellali Mohamed, ID 2323.
+Sellali Mohamed, ID 2323 31601905.
 
-Meghlaoui ISMAIL ABDERRAHIM, ID 232331593210.
+Meghlaoui Rahim, ID 2323.
 
 Lisri Akram, ID 2323 31200815.
